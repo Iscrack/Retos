@@ -1,2 +1,0 @@
-# Retos
-Retos personales
